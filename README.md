@@ -1,8 +1,8 @@
-# [Thing That ALLAH Has Wished ! No Power Except With ALLAH !](https://raw.githubusercontent.com/aWordFromALLAH/Magnetic_Fusion_Battery/main/An%20Ultimete%20Magnetic%20Fusion%20Battery%20-%20THE%20IRON.pdf)
+# [Thing That ALLAH Has Wished ! No Power Except With ALLAH !](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
-# [IN THE NAME OF ALLAH, RAHMAN, RAHİM](https://raw.githubusercontent.com/aWordFromGOD/Fusion_Battery/main/An%20Ultimete%20Magnetic%20Fusion%20Battery%20-%20THE%20IRON.pdf)
+# [IN THE NAME OF ALLAH, RAHMAN, RAHİM](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
-[![kapak](https://raw.githubusercontent.com/aWordFromGOD/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/aWordFromGOD/Fusion_Battery/main/Fusion%20Battery.pdf)
+[![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
 
 IF SACRED SUPREME ALMIGHTY HONOURABLE PROVIDER RAHMAN Gives Permission in order to get 900 watt / 300 Amper from 3V magnetic fusion battery instead of 20 miliAmper you should stick insulator plastic surface to surface of magnet instead of semiconducting 150 ohm resistor high voltage amalgamating tape and then solder magnet to bottom of tungsten coated spring steel coil with 0.01 ohm 1000 watt aluminium resistor!
