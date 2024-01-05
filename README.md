@@ -19,7 +19,7 @@ that means 3000 amper x 3 volt = 9 kw from per side/pole of magnet
 
 <hr>
 
-If ALLAH gives permission using iron slate surfaces that one side of them coated with tungsten cascaded on top of each other will increase both voltage and current dramatically instead of using coil design hence newly found formula shows that change of direction of magnetic field vectors is happening on the surface space... but in any case we should test this theory If ALLAH wills and give permission to His slaves us
+If ALLAH gives permission using both side of them coated with tungsten coils cascaded inside out and between them toroid clyindirical shape magnets will increase both voltage and current dramatically instead of using one layer design
 
 <hr>
 
