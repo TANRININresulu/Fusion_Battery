@@ -1,4 +1,4 @@
-# [Thing That ALLAH Has Wished ! No Power Except With ALLAH !](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
+# [If ALLAH Gives Permission: Thing That ALLAH Has Wished ! No Power Except With ALLAH !](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
 # [IN THE NAME OF ALLAH, RAHMAN, RAHİM](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
