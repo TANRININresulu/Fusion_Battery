@@ -47,7 +47,7 @@
 > Applied Physics (physics.app-ph)<br>
 > Classical Physics (physics.class-ph)
 
-[arxiv.org](https://arxiv.org) these verses are for you for rejecting [[5335649](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] [this](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
+[arxiv.org](https://arxiv.org) these verses are for your rejecting [[5335649](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] of [this](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
 
 > [3:73](https://HonourableQuran.com/3#73) "And do not believe except as those who follow your religion." Say, "The true guidance is GOD's guidance." If they claim that they have the same guidance, or argue with you about your Lord, say, "All grace is in GOD's hand; He bestows it upon whomever He wills." GOD is Bounteous, Omniscient.
 > 
