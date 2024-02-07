@@ -46,15 +46,18 @@
 
 [arxiv.org](https://arxiv.org) these verses are for you for rejecting [[5335649](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] [this](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
 
-3:73 "And do not believe except as those who follow your religion." Say, "The true guidance is GOD's guidance." If they claim that they have the same guidance, or argue with you about your Lord, say, "All grace is in GOD's hand; He bestows it upon whomever He wills." GOD is Bounteous, Omniscient.
+> [3:73](https://HonourableQuran.com/3#73) "And do not believe except as those who follow your religion." Say, "The true guidance is GOD's guidance." If they claim that they have the same guidance, or argue with you about your Lord, say, "All grace is in GOD's hand; He bestows it upon whomever He wills." GOD is Bounteous, Omniscient.
+> 
+> [16:40](https://HonourableQuran.com/16#49) To have anything done, we simply say to it, "Be," and it is.
+> 
+> [18:33](https://HonourableQuran.com/18#33) Both gardens produced their crops on time, and generously, for we caused a river to run through them.
+> 
+> [21:33](https://HonourableQuran.com/21#33) And He is the One who created the night and the day, and the sun and the moon; each floating in its own orbit.
+> 
+> [41:28](https://HonourableQuran.com/41#28) Such is the requital that awaits GOD's enemies. Hell will be their eternal abode; a just requital for discarding Our revelations.
 
-16:40 To have anything done, we simply say to it, "Be," and it is.
-
-18:33 Both gardens produced their crops on time, and generously, for we caused a river to run through them.
-
-21:33 And He is the One who created the night and the day, and the sun and the moon; each floating in its own orbit.
-
-41:28 Such is the requital that awaits GOD's enemies. Hell will be their eternal abode; a just requital for discarding our revelations.
+![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_1.png)
+![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_2.png)
 
 [![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
