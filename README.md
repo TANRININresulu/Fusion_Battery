@@ -2,6 +2,9 @@
 
 # [IN THE NAME OF ALLAH, RAHMAN, RAHİM](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
+[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://www.youtube.com/watch?v=KNW_jqFn1yk)
+
+
 > # New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity With Permission Of THE GOD
 > 
 > IN THE NAME OF ALLAH RAHMAN RAHIM
