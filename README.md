@@ -1,12 +1,12 @@
 [![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://www.youtube.com/watch?v=KNW_jqFn1yk)
 
-[![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
+[![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
 # New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity With Permission Of THE GOD
 
 IN THE NAME OF ALLAH RAHMAN RAHİM
 
-If ALLAH Gives Permission, [Thing](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) That ALLAH Has Wished No Power Except With ALLAH.
+If ALLAH Gives Permission, [Thing](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) That ALLAH Has Wished No Power Except With ALLAH.
 
 Furkan Wisdom Fusion Battery Dabba Irradiation Vehicle & Space Mining
 
@@ -46,7 +46,7 @@ Classical Physics (physics.class-ph)
 
 ![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/rejection.png)
 
-[arxiv.org](https://arxiv.org) these verses are for your rejecting [[5335649](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] of [this](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
+[arxiv.org](https://arxiv.org) these verses are for your rejecting [[5335649](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] of [this](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
 
 > [3:73](https://HonourableQuran.com/3#73) "And do not believe except as those who follow your religion." Say, "The true guidance is GOD's guidance." If they claim that they have the same guidance, or argue with you about your Lord, say, "All grace is in GOD's hand; He bestows it upon whomever He wills." GOD is Bounteous, Omniscient.
 > 
