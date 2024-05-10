@@ -4,7 +4,7 @@ Subhan Rabbimiz Rahman ve Rahim Olan ALLAH'ın İzni Lütfu ve Dilediği Dileği
 
 [![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
-# New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity With Permission Of THE GOD
+# With Permission Of THE GOD ; New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity
 
 IN THE NAME OF ALLAH RAHMAN RAHİM
 
