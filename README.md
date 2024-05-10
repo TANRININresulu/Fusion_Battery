@@ -18,7 +18,7 @@ Quran 57:1- "Whatever is in the heavens and the earth glorifies ALLAH for HE is 
 
 If 1 and Only GOD: ALLAH Praise Be To Him gives permission this document will turn in to the strongest change has ever been on energy service and finance
 
-Why stars turns around black holes? Why planets turns around stars? Why people turns around Kaaba? And Why electrons turns around nuclei of atoms? WHO Has THE FORCES behind all of these? Migthy Omnipotent ALLAH ! And HE explains in HIS Sacred Books Quran & Furkan; All Kinds of Secrets of Universe for Energy, Science, Biology, Mathematics, Transport & Astronomy..
+Why stars turns around black holes? Why planets turns around stars? Why people turns around Kaaba? And Why electrons turns around nuclei of atoms? WHO Has THE FORCES behind all of these? Migthy Omnipotent ALLAH ! And HE explains in HIS Sacred Books Quran & Furkan; All Kinds of Secrets of Universe for Energy(Quran 57:25), Science, Biology(Furkan 20:61-90), Mathematics, Transport(Furkan 20:111-113) & Astronomy(Quran Sura 70, Furkan 20:95-120)..
 
 If ALLAH gives permission we will see how ALLAH gifted earth with abundant, cleanest, safest, non-flammable, non-explosive, strongest, cheapest, infinite range, no need to charge -always %100 full, producing its own energy-, no loss in performance over time and no loss in performance at low temperatures on the contrary increasing performance at low temperatures, no need to recycle Fusion Battery: THE IRON: "The Strongest Ferromagnet"
 
