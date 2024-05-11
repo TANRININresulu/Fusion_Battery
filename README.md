@@ -24,7 +24,7 @@ If ALLAH gives permission we will see how ALLAH gifted earth with abundant, clea
 
 If Most Supreme Almigthy RAHMAN gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism that ALLAH Has Taught to HIS Servant ABDURRAHMAN AYYILDIZ
 
-Quran 57:25
+Honourable QURAN 57:25 We sent our messengers supported by clear proofs, and we sent down to them the scripture and the law, that the people may uphold justice. And we sent down the iron, wherein there is strength, and many benefits for the people. All this in order for GOD to distinguish those who would support Him and His messengers, in the unseen. GOD is Powerful, Almighty.
 
 - Comments:<br>
 110 pages, 2 Newly Discovered Proven Electromagnetism Formula by Permission, Grace, Blessing and Favour of OUR CREATOR, If ALLAH Gives Permission Thing That ALLAH Has Wished! No Power Except With ALLAH!, Guidance, Wisdom, Fusion, Battery, Irradiation Accelerator, Space Mining, Intelligence, Dabba, Technology, Revolution, Happiness, Submission, Furkan, 19
