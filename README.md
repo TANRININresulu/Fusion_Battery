@@ -1,6 +1,6 @@
 Subhan Rabbimiz Rahman ve Rahim Olan ALLAH'ın İzni Lütfu ve Dilediği Dileğiyle Olan Şey! ALLAH ile Olan Dışında Güç Yok! Subhan Rabbimiz Rahman ve Rahim Olan ALLAH'ın Kitabı Onurlu Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
 
-[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4)
+[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4&t=14839)
 
 [![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
@@ -22,7 +22,7 @@ Why stars turns around black holes? Why planets turns around stars? Why people t
 
 If ALLAH gives permission we will see how ALLAH gifted earth with abundant, cleanest, safest, non-flammable, non-explosive, strongest, cheapest, infinite range, no need to charge -always %100 full, producing its own energy-, no loss in performance over time and no loss in performance at low temperatures on the contrary increasing performance at low temperatures, no need to recycle Fusion Battery: THE IRON: "The Strongest Ferromagnet"
 
-If Supreme Almigthy RAHMAN gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism that ALLAH Has Taught to HIS Servant ABDURRAHMAN AYYILDIZ
+If Most Supreme Almigthy RAHMAN gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism that ALLAH Has Taught to HIS Servant ABDURRAHMAN AYYILDIZ
 
 Quran 57:25
 
