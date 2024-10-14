@@ -1,6 +1,6 @@
-Subhan Rabbimiz Rahman ve Rahim Olan ALLAH'ın İzni Lütfu ve Dilediği Dileğiyle Olan Şey! ALLAH ile Olan Dışında Güç Yok! Subhan Rabbimiz Rahman ve Rahim Olan ALLAH'ın Kitabı Onurlu Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
+Rabbimiz Rahman ve Rahim Olan ALLAH'ın İzni Lütfu ve Dilediği Dileğiyle Olan Şey! ALLAH ile Olan Dışında Güç Yok! Subhan Rabbimiz Rahman ve Rahim Olan ALLAH'ın Kitabı Onurlu Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
 
-[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4&t=14839)
+[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
 
 [![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
