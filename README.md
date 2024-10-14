@@ -6,7 +6,7 @@ Rabbimiz Rahman ve Rahim Olan ALLAH'ın İzni Lütfu ve Dilediği Dileğiyle Ola
 
 # With Permission Of THE GOD ; New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity
 
-IN THE NAME OF ALLAH RAHMAN RAHİM
+IN THE NAME OF THE GOD THE COMPASSIONATE THE MERCIFUL
 
 If ALLAH Gives Permission, [Thing](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) That ALLAH Has Wished No Power Except With ALLAH.
 
@@ -22,7 +22,9 @@ Why stars turns around black holes? Why planets turns around stars? Why people t
 
 If ALLAH gives permission we will see how ALLAH gifted earth with abundant, cleanest, safest, non-flammable, non-explosive, strongest, cheapest, infinite range, no need to charge -always %100 full, producing its own energy-, no loss in performance over time and no loss in performance at low temperatures on the contrary increasing performance at low temperatures, no need to recycle Fusion Battery: THE IRON: "The Strongest Ferromagnet"
 
-If Most Supreme Almigthy RAHMAN gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism that ALLAH Has Taught to HIS Servant ABDURRAHMAN AYYILDIZ
+If MOST SACRED gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism that ALLAH Has Taught to HIS Servant ABDURRAHMAN AYYILDIZ
+
+[https://x.com/TANRININresulu/status/1845345836756062398](https://x.com/TANRININresulu/status/1845345836756062398)
 
 Honourable QURAN 57:25 We sent our messengers supported by clear proofs, and we sent down to them the scripture and the law, that the people may uphold justice. And we sent down the iron, wherein there is strength, and many benefits for the people. All this in order for GOD to distinguish those who would support Him and His messengers, in the unseen. GOD is Powerful, Almighty.
 
@@ -63,7 +65,7 @@ Classical Physics (physics.class-ph)
 ![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_1.png)
 ![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_2.png)
 
-IF SACRED SUPREME ALMIGHTY HONOURABLE PROVIDER RAHMAN Gives Permission in order to get 900 watt / 300 Amper from 3V magnetic fusion battery instead of 20 miliAmper you should stick insulator plastic surface to surface of magnet instead of semiconducting 150 ohm resistor high voltage amalgamating tape and then solder magnet to bottom of tungsten coated spring steel coil with 0.01 ohm 1000 watt aluminium resistor!
+IF MOST SACRED ALMIGHTY HONOURABLE PROVIDER THE COMPASSIONATE Gives Permission in order to get 900 watt / 300 Amper from 3V magnetic fusion battery instead of 20 miliAmper you should stick insulator plastic surface to surface of magnet instead of semiconducting 150 ohm resistor high voltage amalgamating tape and then solder magnet to bottom of tungsten coated spring steel coil with 0.01 ohm 1000 watt aluminium resistor!
 
 or even 10 times better if you use 1 mili ohm constantan resistor instead of aluminium resistor
 <br>https://tr.aliexpress.com/item/1005003511898775.html
@@ -81,8 +83,8 @@ If ALLAH gives permission using both side of them coated with tungsten coils cas
 
 <hr>
 
-‪And with artificial general intelligence and magnetic fusion battery and 6 Antigravity vtol vehicle you can grasp objects in space and move them to the earth safely for continuous tungsten needs for mass production of magnetic fusion battery If SACRED SUPREME ALMIGHTY HONOURABLE PROVIDER RAHMAN Gives Permission‬
+‪And with artificial general intelligence and magnetic fusion battery and 6 Antigravity vtol vehicle you can grasp objects in space and move them to the earth safely for continuous tungsten needs for mass production of magnetic fusion battery If MOST SACRED ALMIGHTY HONOURABLE PROVIDER THE COMPASSIONATE Gives Permission‬
 
-‪and If MY 1 & ONLY LORD SACRED SUPREME ALMIGHTY HONOURABLE PROVIDER RAHMAN RAHIM ALLAH Gives Permission carbon nanotube production is key for spinning wheels of anti gravity accelerators look https://youtu.be/porCfVeWyto at https://youtube.com/playlist?list=PLXuWpuJDnmlc3LH3H_I5lE-2VEEDQJSVA‬
+‪and If MY 1 & ONLY LORD MOST SACRED ALMIGHTY HONOURABLE PROVIDER THE COMPASSIONATE THE GOD Gives Permission carbon nanotube production is key for spinning wheels of anti gravity accelerators look https://youtu.be/porCfVeWyto at https://youtube.com/playlist?list=PLXuWpuJDnmlc3LH3H_I5lE-2VEEDQJSVA‬
 
 Magnets should operate in their temperature operation range. Nitrogen based magnets have wider temperature operating range (look: [Niron Magnetics](https://www.nironmagnetics.com/)) In case of operation of magnets at outside of their temperature operation range magnets will loose their magnetism, so magnets should re-magnetized in order for magnetic moments of molecular domains of magnets to be polarized in the same direction and by doing so If ALLAH gives permission your magnets will re-gain their magnetic properties : https://youtu.be/hFAOXdXZ5TM or you should just replace the magnets and after replacement operate your magnets only inside of their temperature operation range given by manufacturer, in order for molecular domains of your magnets remained to be magnetized in the same direction as they are and so your fusion battery continues to operate as expected if ALLAH gives permission.
